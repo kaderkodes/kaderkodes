@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **leecambu@gmail.com**
 
-- ⚡ Fun fact **I am (also) a photographer, check out my portfolio portfolio-leecambu.format.com**
+- ⚡ Fun fact **I am (also) a photographer, check out my portfolio leecambu.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
